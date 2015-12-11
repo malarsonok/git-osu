@@ -1,6 +1,6 @@
 ##Kenya
 ## population
-
+I almost went to Kenya once.
 
 ## capital
 
